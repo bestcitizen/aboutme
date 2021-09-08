@@ -1,1 +1,1 @@
-Hi, I'm Choe Simin!
+Hi, I'm Choe Simin
